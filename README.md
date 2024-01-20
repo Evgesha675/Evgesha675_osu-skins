@@ -26,3 +26,27 @@
 
 # [- Selyui 1.1 -](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1s5DwDWQXRo10AxlNFvNmZPd1_9bbRiul)
 ![](/pngs/screenshot045.jpg)
+
+# [- Shige chat try not to beg for a skin that is easy to remake challenge (impossible)](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=15ZOd5zE0xWGgcXSDavGLzrd_YnX9-tJp)
+![](/pngs/screenshot046.jpg)
+
+# [♥Dora♥(ТАм чота красного пикселя миксанул хз )](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1WdI4luqhxVC-gMmLqegySXrFlX_TBJy5)
+![](/pngs/screenshot047.jpg)
+
+# [#Aristia(Edit)magenta](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=11lGuQmTmAyVhhNrhVwgv7ALZFUv-qzhL)
+![](/pngs/screenshot048.jpg)
+
+# [#Aristia(Edit)magenta](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=11lGuQmTmAyVhhNrhVwgv7ALZFUv-qzhL)
+![](/pngs/screenshot048.jpg)
+
+# [#azer8idke](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1tME2vGaBwSorJtg4bpbMLo8xc4z_ZRtq)
+![](/pngs/screenshot049.jpg)
+
+# [01 Vocaloid by HalfPinter v.1.01](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1tOJewmka6kvFT7YOY0M007J1BUNTdXCP)
+![](/pngs/screenshot050.jpg)
+
+# [bees](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1ZTZmyCHUNCxmYplioudgr_n_l1sUsCva)
+![](/pngs/screenshot051.jpg)
+
+# [bees](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1ZTZmyCHUNCxmYplioudgr_n_l1sUsCva)
+![](/pngs/screenshot051.jpg)
