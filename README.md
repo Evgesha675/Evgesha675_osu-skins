@@ -65,3 +65,6 @@
 
 # [TaEvLaShA](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1Z-_lvWktNduaM_vEcwhcadWLvmz3xHod)
 ![](/pngs/screenshot058.jpg)
+
+# [-+bakanyakanyaikakanyai+-](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1XKbro3KalhofmBeKN66KT7PcggbV3bqP)
+![](/pngs/screenshot060.jpg)
