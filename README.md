@@ -14,3 +14,6 @@
 
 # [-  fuyy](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1pywJGyZv1M-RWSCPpVNcsePwxT8Te4K5)
 ![](/pngs/screenshot041.jpg)
+
+# [Aristia(Edit)](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1IueVWRY-m8q7hCArcXmpcqz8u__C8q1G)
+![](/pngs/screenshot042.jpg)
