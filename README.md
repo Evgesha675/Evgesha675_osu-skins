@@ -1,5 +1,4 @@
-[Download owoTuna v1.0 『SelyuFS』](#-reowotuna-v10-selyufs-osk)
-
-# re;owoTuna v1.0 『SelyuFS』 # -.osk
-
-![Изображение](screenshot035.jpg)
+<br>
+# [- # re;owoTuna v1.0 『SelyuFS』 # -.osk](- # re;owoTuna v1.0 『SelyuFS』 # -.osk)
+![](screenshot035.jpg)
+<br>
