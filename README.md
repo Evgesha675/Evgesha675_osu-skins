@@ -17,3 +17,12 @@
 
 # [Aristia(Edit)](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1IueVWRY-m8q7hCArcXmpcqz8u__C8q1G)
 ![](/pngs/screenshot042.jpg)
+
+# [- bahamete (Yamemasita mod v2)](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=12zmBuLqCFRRSPT2yJa6Mow7yIZpaZ7Ne)
+![](/pngs/screenshot043.jpg)
+
+# [- Jaret - Mish Mosh Goose Edit](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1CT6zdTiawbfNdKz_iZqDc99VTR5uw2jv)
+![](/pngs/screenshot044.jpg)
+
+# [- Selyui 1.1 -](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1s5DwDWQXRo10AxlNFvNmZPd1_9bbRiul)
+![](/pngs/screenshot045.jpg)
