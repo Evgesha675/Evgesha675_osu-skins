@@ -36,9 +36,6 @@
 # [#Aristia(Edit)magenta](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=11lGuQmTmAyVhhNrhVwgv7ALZFUv-qzhL)
 ![](/pngs/screenshot048.jpg)
 
-# [#Aristia(Edit)magenta](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=11lGuQmTmAyVhhNrhVwgv7ALZFUv-qzhL)
-![](/pngs/screenshot048.jpg)
-
 # [#azer8idke](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1tME2vGaBwSorJtg4bpbMLo8xc4z_ZRtq)
 ![](/pngs/screenshot049.jpg)
 
@@ -48,5 +45,23 @@
 # [bees](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1ZTZmyCHUNCxmYplioudgr_n_l1sUsCva)
 ![](/pngs/screenshot051.jpg)
 
-# [bees](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1ZTZmyCHUNCxmYplioudgr_n_l1sUsCva)
-![](/pngs/screenshot051.jpg)
+# [♥DoraMix♥](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1jBb5SPs69UipRSWAbjqbJpB8dEo4AHY7)
+![](/pngs/screenshot052.jpg)
+
+# [WWW](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1bEN1NVNJ9NWqgoywnPPz-OGgl_2Hf_ZA)
+![](/pngs/screenshot053.jpg)
+
+# [- RWBY2 Black](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1VPT2aSUHk8i4Mo7jBWy9UHKH2TdixObc)
+![](/pngs/screenshot054.jpg)
+
+# [NIKITA](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=12JPe110tLgsvOY-Nwne0UHwqtazCTrEO)
+![](/pngs/screenshot055.jpg)
+
+# [minusLS-13.01.19-STD](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1nWifkXsDVsSdEDyEQ8ZS6GqfWVdydc6y)
+![](/pngs/screenshot056.jpg)
+
+# [Yugen675](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1VcmkXnF8jG1V28WD0Isp1F6UYBjN90yY)
+![](/pngs/screenshot057.jpg)
+
+# [TaEvLaShA](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1Z-_lvWktNduaM_vEcwhcadWLvmz3xHod)
+![](/pngs/screenshot058.jpg, /pngs/screenshot059.jpg)
