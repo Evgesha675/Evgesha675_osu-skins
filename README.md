@@ -11,5 +11,3 @@
 # [-    Talala-Chad ⩽ Bacon ⩾](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1TxkXeS0KG7hHzsIDy_vrc5GRcuHCOKzn)
 ![](/pngs/screenshot039.jpg)
 
-# [-    Talala-Chad ⩽ Bacon ⩾](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1TxkXeS0KG7hHzsIDy_vrc5GRcuHCOKzn)
-![](/pngs/screenshot039.jpg)
