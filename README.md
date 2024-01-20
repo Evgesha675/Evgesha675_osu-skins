@@ -7,3 +7,9 @@
 
 # [-  -  - #1 Skin](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=13IKxrPlfvrROqM0rPPvEZdv3ga6gWpdO)
 ![](/pngs/screenshot038.jpg)
+
+# [-    Talala-Chad ⩽ Bacon ⩾](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1TxkXeS0KG7hHzsIDy_vrc5GRcuHCOKzn)
+![](/pngs/screenshot039.jpg)
+
+# [-    Talala-Chad ⩽ Bacon ⩾](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1TxkXeS0KG7hHzsIDy_vrc5GRcuHCOKzn)
+![](/pngs/screenshot039.jpg)
