@@ -64,4 +64,4 @@
 ![](/pngs/screenshot057.jpg)
 
 # [TaEvLaShA](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1Z-_lvWktNduaM_vEcwhcadWLvmz3xHod)
-![](/pngs/screenshot058.jpg, /pngs/screenshot059.jpg)
+![](/pngs/screenshot058.jpg)
