@@ -1,6 +1,7 @@
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁༺ Z ༻꧂
 
-
+# [EvgMC] (https://drive.google.com/uc?export=download&id=1JIHmBfmCmEHXt6oM_95f-BTl5PJRBh7m)
+![](/pngs/screenshot009.jpg)
 # [Рикардо Милос](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1zsobB2HA-ucQPlM8xAG_5_vRkKzQYStb)
 ![](/pngs/screenshot061.jpg)
 
