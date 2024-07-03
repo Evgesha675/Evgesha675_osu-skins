@@ -3,6 +3,13 @@
 # [EvgMC](https://drive.google.com/uc?export=download&id=1JIHmBfmCmEHXt6oM_95f-BTl5PJRBh7m)
 ![](/pngs/screenshot009.jpg)
 
+# [WhiteGesha](https://drive.google.com/uc?export=download&id=18f0PK0QpNwRz3JuSN5gcexnoS1bvmAQk)
+![](/pngs/screenshot010.jpg)
+
+# [WWWesha](https://drive.google.com/uc?export=download&id=1CMAgwbNt_0Z6X7RCgKdGY3tESkusXYO6)
+![](/pngs/screenshot011.jpg)
+
+
 # [Рикардо Милос](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1zsobB2HA-ucQPlM8xAG_5_vRkKzQYStb)
 ![](/pngs/screenshot061.jpg)
 
