@@ -1,6 +1,6 @@
 $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
-## Часто играю со скинами <a href="https://github.com/thepro2k" target="_blank">$$\color{blue}{Maliszewski}$$</a>, скачать их можно тут:  
+## Часто играю со скинами <a href="https://github.com/thepro2k" target="_blank">$$\color{red}{Maliszewski}$$</a>, скачать их можно тут:  
 📥 **[Скачать скины →](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
 
 
