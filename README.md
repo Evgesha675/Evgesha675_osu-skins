@@ -1,11 +1,7 @@
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁<span style="color: blue;">༺ Z </span><span style="color: white; background-color: red;">༻꧂</span>
 
 ```diff
-- text in red
-+ text in green
-! text in orange
-# text in gray
-@@ text in purple (and bold)@@
+Никнейм
 ```
 ## Часто играю со скинами Maliszewski, скачать их можно тут:
 - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
