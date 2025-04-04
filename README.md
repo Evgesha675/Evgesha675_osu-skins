@@ -5,6 +5,8 @@
 - **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
   ![screenshot068](./pngs/screenshot068.jpg)
 
+- **[-Evgesha_Rohulk](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-Evgesha_Rohulk.osk)**  
+  ![screenshot068](./pngs/screenshot071.jpg)
 
 - **[EvgMC](https://drive.google.com/uc?export=download&id=1JIHmBfmCmEHXt6oM_95f-BTl5PJRBh7m)**  
   ![screenshot009](./pngs/screenshot009.jpg)
