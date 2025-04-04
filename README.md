@@ -1,7 +1,8 @@
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁༺ Z ༻꧂
 
 ## Скины:
-- **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/AristiaWpurple(Evg).osk**  
+
+- **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
   ![screenshot068](./pngs/screenshot068.jpg)
 
 
