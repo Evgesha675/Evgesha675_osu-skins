@@ -1,4 +1,7 @@
-# ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁༺ Z ༻꧂
+# ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁<span style="color: white; background-color: blue;">༺ Z </span><span style="color: red;">༻꧂</span>
+
+## Часто играю со скинами Maliszewski, скачать их можно тут:
+
 
 ## Часто играю со скинами Maliszewski, скачать их можно тут:
 - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
