@@ -1,8 +1,6 @@
-# ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁<span style="color: blue;">༺ Z </span><span style="color: white; background-color: red;">༻꧂</span>
+$${\color{white}꧁ \space \color{lightblue}Z \space \color{red}꧂}$$
 
-$${\color{red}Welcome \space \color{lightblue}To \space \color{orange}Stackoverflow}$$
-
-## Часто играю со скинами Maliszewski, скачать их можно тут:
+## Часто играю со скинами $${\color{blue}Maliszewski}$$, скачать их можно тут:
 - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
 ## Скины:
 
