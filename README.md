@@ -1,10 +1,4 @@
-$$
-\begin{array}{c}
-\colorbox{white}{\textcolor{white}{\text{████████████}}} \\
-\colorbox{blue}{\textcolor{blue}{\text{████████████}}} \\
-\colorbox{red}{\textcolor{red}{\text{████████████}}}
-\end{array}
-$$
+$${\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 
 ## Часто играю со скинами $${\color{blue}Maliszewski}$$, скачать их можно тут: - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
