@@ -1,7 +1,6 @@
-##              $${\color{white}꧁ \space \color{darkblue}Z \space \color{red}꧂}$$
+##ㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{white}꧁ \space \color{darkblue}Z \space \color{red}꧂}$$
 
-## Часто играю со скинами $${\color{blue}Maliszewski}$$, скачать их можно тут:
-- **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
+## Часто играю со скинами $${\color{blue}Maliszewski}$$, скачать их можно тут: - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
 ## Скины:
 
 - **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
