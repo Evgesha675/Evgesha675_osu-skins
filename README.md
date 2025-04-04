@@ -9,7 +9,7 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 - **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
   ![screenshot068](./pngs/screenshot068.jpg)
 
-- **[#EvgAzr8](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/#EvgAzr8.osk)**  
+- **[#EvgAzr8](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/EvgAzr8.osk)**  
 ![screenshot068](./pngs/screenshot076.jpg)
 
 - **[-Evgesha_Rohulk](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-Evgesha_Rohulk.osk)**  
