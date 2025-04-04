@@ -1,6 +1,6 @@
 # ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁༺ Z ༻꧂
 
-## Часто играю со скинами Maliszevski, скачать их можно тут:
+## Часто играю со скинами Maliszewski, скачать их можно тут:
 - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
 ## Скины:
 
