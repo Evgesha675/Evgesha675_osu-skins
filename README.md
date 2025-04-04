@@ -1,13 +1,15 @@
-# ㅤㅤㅤㅤㅤㅤㅤㅤㅤ꧁༺ Z ༻꧂
+$$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
-## Часто играю со скинами Maliszevski, скачать их можно тут:
-- **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
+## Часто играю со скинами  игрока <a href="https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md" color="green" target="_blank">Maliszewski</a>, скачать их можно тут:  
+📥 **[ТЫЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
+
+
 ## Скины:
 
 - **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
   ![screenshot068](./pngs/screenshot068.jpg)
 
-- **[#EvgAzr8](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/#EvgAzr8.osk)**  
+- **[#EvgAzr8](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/EvgAzr8.osk)**  
 ![screenshot068](./pngs/screenshot076.jpg)
 
 - **[-Evgesha_Rohulk](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-Evgesha_Rohulk.osk)**  
