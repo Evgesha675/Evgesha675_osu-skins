@@ -1,7 +1,7 @@
 $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
-## Часто играю со скинами <a href="https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md" color="green" target="_blank">Maliszewski</a>, скачать их можно тут:  
-📥 **[Скачать скины →](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
+## Часто играю со скинами  игрока <a href="https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md" color="green" target="_blank">Maliszewski</a>, скачать их можно тут:  
+📥 **[ТЫЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
 
 
 ## Скины:
