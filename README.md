@@ -1,4 +1,4 @@
-$${\color{white}{blue}{red}꧁ \space \color{darkblue}Z \space \color{red}꧂}$$
+## $${\color{white}꧁ \space \color{darkblue}Z \space \color{red}꧂}$$
 
 ## Часто играю со скинами $${\color{blue}Maliszewski}$$, скачать их можно тут:
 - **[ТЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)** 
