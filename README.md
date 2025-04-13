@@ -2,7 +2,8 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 ## Часто играю со скинами  игрока <a href="https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md" color="green" target="_blank">Maliszewski</a>, скачать их можно тут:  
 📥 **[ТЫЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
-ещё репы со скинами: ""[ТЫЫЫК](https://github.com/Antoshika/osu-skins)**
+##ещё репы со скинами: 
+**[ТЫЫЫК](https://github.com/Antoshika/osu-skins)**
 
 
 ## Скины:
