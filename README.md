@@ -1,7 +1,5 @@
 $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
-# Ссылка на SuperDisplay 
-**[Super Display](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/superdisplay/SuperDisplay_1.2.2_beta_Mod_by_Nick768.zip)**
 
 ## Часто играю со скинами  игрока <a href="https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md" color="green" target="_blank">Maliszewski</a>, скачать их можно тут:  
 📥 **[ТЫЫК](https://github.com/thepro2k/Maliszewski-osu-skins/blob/main/skin.md)**
@@ -116,3 +114,8 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 - **[Valakas_stal_hohlom](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=191fFo3ewspUWgrCZZbWYt_IKxyvYXQjS)**  
   ![screenshot062](./pngs/screenshot062.jpg)
+
+
+
+# Ссылка на SuperDisplay (ЭТО НЕ СКИН!!!)
+**[Super Display](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/superdisplay/SuperDisplay_1.2.2_beta_Mod_by_Nick768.zip)**
