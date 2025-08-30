@@ -12,6 +12,18 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 ## Скины:
 
+- **[orange (maded by ryrver)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/orange.osk)**  
+  ![screenshot068](./pngs/screenshot184.jpg)
+
+- **[rohesha](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/rohesha.osk)**  
+  ![screenshot068](./pngs/screenshot183.jpg)
+
+- **[Roman_Pokora_23_12](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/Roman_Pokora_23_12.osk)**  
+  ![screenshot068](./pngs/screenshot181.jpg)
+
+- **[- (Nekomiya) v1.2_ultra_lite](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-(Nekomiya)v1.2_ultra_lite.osk)**  
+  ![screenshot068](./pngs/screenshot182.jpg)
+
 - **[- AristiaWpurple(Evg)](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-AristiaWpurple(Evg).osk)**  
   ![screenshot068](./pngs/screenshot068.jpg)
 
