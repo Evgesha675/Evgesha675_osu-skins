@@ -10,7 +10,7 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 ## Скины:
 
-- **[orange] (https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/orange.osk, [by ryrver](https://t.me/ryrver))**
+- **[orange](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/orange.osk, [by ryrver](https://t.me/ryrver))**
   ![screenshot068](./pngs/screenshot184.jpg)
 
 - **[rohesha](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/rohesha.osk)**  
