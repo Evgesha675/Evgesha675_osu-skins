@@ -10,7 +10,7 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 ## Скины:
 
-- **[True_Kek_Zkin](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/boom0524.osk)**  
+- **[True_Kek_Zkin](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/boom0524.osk)**   ЭТО ТОТ ЧТО С ZЕТКОЙ!
   ![screenshot068](./pngs/screenshot188.jpg)
 
 - **[orange](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/orange.osk), link for creator->[ryrver](https://t.me/ryrver)**
