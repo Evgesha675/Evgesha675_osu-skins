@@ -10,6 +10,9 @@ $$\Huge{\color{white}꧁}{\color{blue}༺ Z ༻}{\color{red}꧂}$$
 
 ## Скины:
 
+- **[-----](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-----.osk)** 
+  ![screenshot096](./pngs/screenshot096.jpg)
+
 - **[- ! Evgesh_ochka RU](https://github.com/Evgesha675/Evgesha675_osu-skins/raw/main/skins/-_!_Evgesh_ochka_RU.osk)** 
   ![screenshot068](./pngs/screenshot189.jpg)
 
